@@ -1,3 +1,2 @@
 # WordPressCourse
-
-¸üÐÂÖ÷Õ¾£ºhttp://ledplus.cc/wordpress
+æ›´æ–°ä¸»ç«™ http://ledplus.cc/wordpress
